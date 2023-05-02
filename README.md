@@ -6,7 +6,7 @@
 
 <p>
 
-Estudando/trabalhando na **IFSP - Votuporanga**<br/>
+Estudando em **IFSP - Votuporanga**<br/>
 
 
 </p>
